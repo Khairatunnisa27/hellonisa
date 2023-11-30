@@ -1,2 +1,3 @@
 # hellonisa
-Depository kedua Khairatunnisa
+# Depository kedua Khairatunnisa
+# hari ini adalah hari kamis
